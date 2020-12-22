@@ -1,1 +1,0 @@
-# QCM-for-qcm-dynamic
